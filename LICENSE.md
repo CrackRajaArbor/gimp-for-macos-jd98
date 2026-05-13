@@ -1,4 +1,4 @@
-# 
+# Gimp for macOS updated Preset - color correction and vector tools is the best Gimp for macOS preset, featuring color correction and vector tools. Safe, efficient, and optimized
 
 
 
